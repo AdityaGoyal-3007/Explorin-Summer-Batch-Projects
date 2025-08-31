@@ -1,1 +1,0 @@
-konnichiwa minasan. Adi desu.
